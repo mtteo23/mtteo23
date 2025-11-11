@@ -1,9 +1,9 @@
-Ciao!
-Sono uno studente a Torino, mi interessano i librogame, il griko, gli scout, l'informatica e un po la cybersecurity tra le altre cose.
+Studente del politecnico di Torino, gruppo scout Torino 7
+Mi piace la cybersecurity, i librogame e programmare in generale
+Sto lavorando nel team studentesco DIANA, costruiamo rover
+Mi ŝatis la 2023 UK sed mi ne sukcesis iri al aliaj e-renkontiĝoj
 
-Mi estas tro malmulte aktiva en la Esperanta movado, la nura kongreso al kiu mi partoprenis estis la 108-a.
-En luda-libro estas eta esperantlingva ludlibro kiun mi skribis, diru al mi se mi faris erarojn tie.
-<!---
-mtteo23/mtteo23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Watch the series [Pantheon](https://en.wikipedia.org/wiki/Pantheon_(TV_series)) it's amazing
+
+I use mint btw hahaha
+
